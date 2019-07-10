@@ -1,1 +1,2 @@
-nothing in this buddy just for fun
+noth
+ing in this buddy just for fun
